@@ -1,0 +1,1 @@
+# vvf-email-assets
